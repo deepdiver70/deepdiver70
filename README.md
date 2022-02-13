@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @deepdiver70
+- 👀 I’m interested in Austria
+- 🌱 I’m currently learning the Airbus A320
+- 📫 How to reach me Discord --> deepdiver [Julian | DE, EN]#0628
